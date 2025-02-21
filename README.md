@@ -1,5 +1,5 @@
 ## Projects:
-1. Current - ?
+Current - ?
 
 
 
